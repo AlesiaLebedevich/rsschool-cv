@@ -4,7 +4,7 @@
 
 ## Contact Info
 
-* e-mail:  lebedevi4@mail.ru;
+* e-mail:  [lebedevi4@mail.ru](https://mail.ru/);
 * Tel: +375292496953, +375447972839;
 * Telegram: @alesialebedevich.
 
